@@ -1,2 +1,2 @@
 # Home-Work-Trusov-
-всё пиздец сложно
+(https://doomgayyyy.github.io/Home-Work-Trusov-/)
